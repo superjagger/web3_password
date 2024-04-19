@@ -1,4 +1,4 @@
-rusk's
-transfuse
-omits
-bassinet's
+Scotland
+juicer
+emphasizes
+disgorge
