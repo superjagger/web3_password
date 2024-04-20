@@ -1,4 +1,4 @@
-reproach
-Boltzmann
-serendipity's
-recounts
+gloss's
+incrust
+Yeager's
+worlds
