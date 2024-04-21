@@ -1,4 +1,4 @@
-gloss's
-incrust
-Yeager's
-worlds
+stats
+surprised
+rhymes
+mansard's
