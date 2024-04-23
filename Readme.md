@@ -1,4 +1,4 @@
-Tasmania's
-rod's
-askance
-glowering
+cashed
+player
+coxcomb's
+Punjab's
